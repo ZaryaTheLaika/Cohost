@@ -3,7 +3,7 @@ Here is a GitHub repository for posts from the [Cohost](https://cohost.org/zarya
 
 The pictures embedded in the individual posts may not display image descriptions correctly on GitHub. Check the raw file if you need the image description.
 
-Due to copyright concerns, replies to other people's posts are not archived on GitHub nor GitLab. Please use the [Wayback Machine](https://web.archive.org/web/*/https://cohost.org/zaryathelaika*).
+Due to copyright concerns, replies to other people's posts are not archived on GitHub nor [GitLab](https://gitlab.com/ZaryaTheLaika/Cohost). Please use the [Wayback Machine](https://web.archive.org/web/*/https://cohost.org/zaryathelaika*).
 ## Support
 If you enjoy the blog and wish to see continous updates, please consider contributing to the [puppy fund](https://paypal.me/bglamours) via PayPal.
 ## License and Copyright
