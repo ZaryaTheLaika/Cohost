@@ -30,6 +30,8 @@ Laikas are not curs nor hounds either since they constantly zigzag and loop when
 
 I love my anti-authoritarian dogs.
 
+Originally posted February 8th, 2023 11:28am.
+
 Tags: #West Siberian Laika, #laika, #hunting laika, #dog training, #anti-authoritarianism, #dog-centered training
 
 URL: https://cohost.org/zaryathelaika/post/1315033-reading-russian-arti
