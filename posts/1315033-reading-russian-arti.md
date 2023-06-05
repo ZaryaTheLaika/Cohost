@@ -35,3 +35,6 @@ Originally posted February 8th, 2023 11:28am.
 Tags: #West Siberian Laika, #laika, #hunting laika, #dog training, #anti-authoritarianism, #dog-centered training
 
 URL: https://cohost.org/zaryathelaika/post/1315033-reading-russian-arti
+<!--
+If you apperciate the blog post, please consider contributing to the puppy fund: https://www.paypal.me/bglamours.
+-->
