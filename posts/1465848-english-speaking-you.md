@@ -25,3 +25,6 @@ Gosh, wish dog-influencers actually look things up before making assumptions in 
 Originally posted February 14th, 2023 4:06pm.
 
 URL: https://cohost.org/zaryathelaika/post/1465848-english-speaking-you
+<!--
+If you apperciate the blog post, please consider contributing to the puppy fund: https://www.paypal.me/bglamours.
+-->
