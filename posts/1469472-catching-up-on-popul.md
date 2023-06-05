@@ -7,3 +7,6 @@ Catching up on population genetics and pedigree analyses in scientific literatur
 Originally posted on February 15th, 2023 10:44pm.
 
 URL: https://cohost.org/zaryathelaika/post/1469472-catching-up-on-popul
+<!--
+If you apperciate the blog post, please consider contributing to the puppy fund: https://www.paypal.me/bglamours.
+-->
