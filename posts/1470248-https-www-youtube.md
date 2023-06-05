@@ -13,3 +13,6 @@ Been meaning to journal Zarya's upbringing on there but kind of want to do it in
 Tags: #YouTube, #TikTok shorts, #youtube embed, #youtube shorts,#tiktok
 
 URL: https://cohost.org/zaryathelaika/post/1470248-https-www-youtube
+<!--
+If you apperciate the blog post, please consider contributing to the puppy fund: https://www.paypal.me/bglamours.
+-->
