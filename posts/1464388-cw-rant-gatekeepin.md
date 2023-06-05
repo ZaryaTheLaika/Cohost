@@ -19,3 +19,6 @@ Nothing against dog-sports, I participate in them too to keep the dog entertaine
 Originally posted February 13th, 2023 2:12pm.
 
 URL: https://cohost.org/zaryathelaika/post/1464388-cw-rant-gatekeepin
+<!--
+If you apperciate the blog post, please consider contributing to the puppy fund: https://www.paypal.me/bglamours.
+-->
